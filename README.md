@@ -3,7 +3,7 @@
 
 Perkenalkan nama saya **Santianda**
 
-Saya berasal dari **Bengkulu**
+Saya berasal bumi Raflesia dimana tempat pengasinggan **Ir Soekarno** pada tahun 1938 dan tempat lahirnya Ibu Negara pertama Republik Indonesia Ibu Fatmawati yaitu saya berasal dari Provinsi **Bengkulu**
 
 Saya seorang **Fresh Graduate** dari Universitas Bengkulu Jurusan Matematika
 
