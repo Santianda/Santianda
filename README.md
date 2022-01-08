@@ -1,16 +1,16 @@
-### Hi there 👋
+### Assalamu'alaikum Wr.Wb 
+# Halo semua!  👋
 
-<!--
-**Santianda/Santianda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Perkenalkan nama saya **Santianda**.
 
-Here are some ideas to get you started:
+Saya berasal dari **Bengkulu**.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Saya seorang **Fresh Graduate** dari Universitas Bengkulu Jurusan Matematika.
+
+Jika ingin menghubungiku silahkan melalui [Whatsapp](https://api.whatsapp.com/send?phone=6289665894201).
+
+Jika kamu tertarik untuk berkenalan denganku, silahkan ikuti akun [Linkedin](https://www.linkedin.com/in/santianda-64454821b)ku ya.
+
+
+
+
