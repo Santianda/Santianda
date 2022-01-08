@@ -3,7 +3,7 @@
 
 Perkenalkan nama saya **Santianda**
 
-Saya dari bumi Rafflesia dengan keindahan alam terbentang pantai terpanjang di Indonesia yaitu pantai Panjang yang ada di bumi Raffleisa, tidak hanya itu di bumi rafflesia menjadi salah-satu tempat pengasinggan **Ir Soekarno** pada tahun 1938 dan tempat lahirnya Ibu Negara pertama Republik Indonesia penjahit Bendera Sangsaka Merah Putih Ibu Fatmawati. Saya berasal dari Provinsi **Bengkulu**
+Saya dari bumi Rafflesia dengan keindahan alam terbentang pantai terpanjang di Indonesia yaitu pantai Panjang yang ada di bumi Rafflesia, tidak hanya itu di bumi Rafflesia menjadi salah-satu tempat pengasingan **Ir Soekarno** pada tahun 1938 dan tempat lahirnya Ibu Negara pertama Republik Indonesia penjahit Bendera Sangsaka Merah Putih **Ibu Fatmawati**. Bumi Rafflesia merupakan julukan dari Provinsi **Bengkulu**
 
 Saya seorang **Fresh Graduate** dari Universitas Bengkulu Jurusan Matematika
 
