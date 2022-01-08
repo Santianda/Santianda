@@ -1,5 +1,5 @@
 ### Assalamu'alaikum Wr.Wb 
-# Halo semua!  👋
+# Halo semua!  👋 :) 
 
 Perkenalkan nama saya **Santianda**
 
